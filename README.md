@@ -1,7 +1,5 @@
 SkillCraft Technology –  Poster Design Concept
 
-For this poster - Here is complete matter for your assignment/presentation:
-
 INTRODUCTION
 
 This poster is designed for an environmental awareness campaign titled "GreenTomorrow". The main objective of the campaign is to inspire people to take small but meaningful actions towards building a cleaner and greener planet. 
