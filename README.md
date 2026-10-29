@@ -1,3 +1,5 @@
+SkillCraft Technology –  Poster Design Concept
+
 Green Tomorrow is an environmental vision and collective call to action focused on balancing human development with ecological preservation.
 
 Introduction
